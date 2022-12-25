@@ -2,7 +2,7 @@
 
 # RallyAces Poker Hack 2022 Cheats Generator Unlimited Chips & Coins and more
 
-[Click Here For RallyAces Poker Chips & Coins Generator](https://gamergeek.xyz/cofb/)
+[Click Here For RallyAces Poker Chips & Coins Generator](https://gamergeek.xyz/rapfb/)
 
 ----
 
